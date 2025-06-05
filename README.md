@@ -1,4 +1,4 @@
-# Barbora Marcincakova | Kalkulacka s premennymi a zatvorkami | 2025
+# Kalkulacka s premennymi a zatvorkami | 2025
 
 ---
 
